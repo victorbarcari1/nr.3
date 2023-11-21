@@ -6,3 +6,7 @@ lectie cu cristi
 
 hahahhaaahahahahhahahahahha
   owedewofkofkoefkokokokokk
+
+
+
+  add git
